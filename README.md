@@ -1,6 +1,6 @@
 ### Hi👋
 
-✨Welcome my profile ✨
+✨Welcome to my profile ✨
 
 I am a student who is learning Github hard!!⚡
 
