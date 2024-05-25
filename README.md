@@ -2,7 +2,7 @@
 
 ✨Welcome to my profile ✨
 
-I am a student who is learning Github hard!!⚡
+I am a student who is study hard!!⚡
 
 
 
